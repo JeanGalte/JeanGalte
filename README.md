@@ -1,1 +1,1 @@
-Everything on my github is submitted to MIT License. 
+On vient te pull up en quechua
